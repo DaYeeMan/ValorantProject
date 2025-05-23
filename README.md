@@ -1,1 +1,1 @@
-fuck u nga
+i love minors
